@@ -1,2 +1,2 @@
 # techs3sample
-Testen!
+:-O)
